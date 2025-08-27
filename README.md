@@ -1,0 +1,1 @@
+# exercico-pyhton-23-08-2025
